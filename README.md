@@ -10,4 +10,8 @@ This is an ecclectic mix of things based on feelings at any given moment. Though
 
 ## VIDEOS
 
+### sad_af
+
+- [Evanescence - Good Enough](https://www.youtube.com/watch?v=Kw2Ic_2XdVQ)
+
 ## OTHER?
