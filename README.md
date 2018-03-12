@@ -8,6 +8,11 @@ This is an ecclectic mix of things based on feelings at any given moment. Though
 
 - seether - careless whisper
 
+### intenseaf
+
+- avenged sevenfold - hail to the king
+- avenged sevenfold - this means war
+
 ## VIDEOS
 
 ### sad_af
