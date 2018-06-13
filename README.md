@@ -4,7 +4,7 @@ This is an ecclectic mix of things based on feelings at any given moment. Though
 
 ## SONGS
 
-### sad_af
+### sadaf
 
 - seether - careless whisper
 
@@ -19,11 +19,13 @@ This is an ecclectic mix of things based on feelings at any given moment. Though
 
 ## VIDEOS
 
-### sad_af
+### sadaf
 
-- [Evanescence - Good Enough](https://www.youtube.com/watch?v=Kw2Ic_2XdVQ)
+- [Evanescence -- Good Enough](https://www.youtube.com/watch?v=Kw2Ic_2XdVQ)
 
 ### intenseaf
-- [The Pretty Reckless - Going to Hell](https://www.youtube.com/watch?v=bmtbg5b7_Aw)
+
+- [The Pretty Reckless -- Going to Hell](https://www.youtube.com/watch?v=bmtbg5b7_Aw)
+- [The Pretty Reckless -- Make Me Wanna Die](https://www.youtube.com/watch?v=txBfhpm1jI0)
 
 ## OTHER?
