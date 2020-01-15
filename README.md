@@ -35,4 +35,8 @@ This is an ecclectic mix of things based on feelings at any given moment. Though
 
 - [Our Lady Peace -- Somewhere Out There](https://www.youtube.com/watch?v=8SzFaEqbLRM)
 
+## funaf!
+
+- [Theory of a Deadman -- Bad Girlfriend](https://www.youtube.com/watch?v=Pn0w7vciQCE)
+
 ## OTHER?
