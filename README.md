@@ -29,4 +29,8 @@ This is an ecclectic mix of things based on feelings at any given moment. Though
 - [The Pretty Reckless -- Going to Hell](https://www.youtube.com/watch?v=bmtbg5b7_Aw)
 - [The Pretty Reckless -- Make Me Wanna Die](https://www.youtube.com/watch?v=txBfhpm1jI0)
 
+## Canada, man!
+
+- [Our Lady Peace -- Somewhere Out There](https://www.youtube.com/watch?v=8SzFaEqbLRM)
+
 ## OTHER?
