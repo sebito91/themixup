@@ -34,6 +34,7 @@ This is an ecclectic mix of things based on feelings at any given moment. Though
 ## Canada, man!
 
 - [Our Lady Peace -- Somewhere Out There](https://www.youtube.com/watch?v=8SzFaEqbLRM)
+- [Triumph -- Lay It On The Line](https://www.youtube.com/watch?v=gCWj8Nz5DUg)
 
 ## funaf!
 
