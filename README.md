@@ -61,4 +61,8 @@ This is an ecclectic mix of things based on feelings at any given moment. Though
 - [Dorothy -- Black Sheep](https://www.youtube.com/watch?v=5zBUlhcRyWw)
 - [In This Moment -- Black Wedding feat. Rob Halford](https://www.youtube.com/watch?v=fHAi_-DOy40)
 
+### upliftaf!
+
+- [Alter Bridge - My Champion](https://www.youtube.com/watch?v=WTTkNlvrYeQ)
+
 ## OTHER?
