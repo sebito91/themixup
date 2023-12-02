@@ -32,6 +32,7 @@ This is an ecclectic mix of things based on feelings at any given moment. Though
 - [The Pretty Reckless -- Make Me Wanna Die](https://www.youtube.com/watch?v=txBfhpm1jI0)
 - [Ozzy Osbourne -- Mr. Crowley 1981 (Live)](https://www.youtube.com/watch?v=G3LvhdFEOqs)
 - [In This Moment - The FIghter](https://www.youtube.com/watch?v=D3sg1sDhX0U)
+- [Bad Wolves - Zombie](https://www.youtube.com/watch?v=9XaS93WMRQQ)
 
 ### powerballads!
 
