@@ -62,6 +62,7 @@ This is an ecclectic mix of things based on feelings at any given moment. Though
 ### girlsrule!
 
 - [Dorothy -- Black Sheep](https://www.youtube.com/watch?v=5zBUlhcRyWw)
+- [Dorothy -- Flawless](https://www.youtube.com/watch?v=P1O4FGK0WT8)
 - [In This Moment -- Black Wedding feat. Rob Halford](https://www.youtube.com/watch?v=fHAi_-DOy40)
 
 ### upliftaf!
